@@ -1,5 +1,5 @@
 **Privacy Policy**
-Carli Watch Faces app are built as a free apps. This SERVICE is provided by me at no cost and is intended for use as is.
+Carli Watch Face apps are built as a free apps. This SERVICE is provided by me at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
